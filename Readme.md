@@ -1,2 +1,0 @@
-Walamak
-Coba Jeu
